@@ -5,5 +5,5 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working for University of Tokyo.
+- 🔭 I’m currently studying hard for attending the University of Tokyo.
 -->
